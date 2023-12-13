@@ -8,7 +8,7 @@ Aunque la verdad quisiera y hago el esfuerzo
 No entiendo la matemática, pero no tengo porqué hacerlo
 Un mundo de posibilidades imagino y me sumerjo
 En las leves pero resonantes ondas de tu concerto grosso
-Y en la sabía y elegante forma que el sol proyecta en tu contorno
+Y en la sabia y elegante forma que el sol proyecta en tu contorno
 
 Digo muchas tonterías, a veces dan risa, a veces las retiro
 Y la mayoría del tiempo, ni consciente estoy de lo que expulso
